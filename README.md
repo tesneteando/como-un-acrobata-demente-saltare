@@ -35,3 +35,4 @@ a desvelarte
 el corazón
 quereme asi
 pianto pianto pianto
+abrite los amores
