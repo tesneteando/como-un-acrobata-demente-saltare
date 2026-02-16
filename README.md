@@ -42,3 +42,4 @@ la mágica locura
 total de revivir
 veni vola vivi
 viva viva viva
+loco él y loca yo
