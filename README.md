@@ -34,3 +34,4 @@ y un trombón
 a desvelarte
 el corazón
 quereme asi
+pianto pianto pianto
