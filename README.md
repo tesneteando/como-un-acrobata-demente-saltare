@@ -38,3 +38,4 @@ pianto pianto pianto
 abrite los amores
 que vamos
 a intentar
+la mágica locura
