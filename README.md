@@ -22,3 +22,4 @@ y a vos te vi tan triste
 veni volá sentí
 el loco berretin
 que tengo para vos
+loco, loco, loco
