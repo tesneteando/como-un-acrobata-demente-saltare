@@ -46,3 +46,4 @@ loco él y loca yo
 locos
 todos locos
 un homenaje
+a todos los "locos"
