@@ -53,3 +53,5 @@ y buscar llenar sus vidas
 cayendo en sus más
 profundos sueños
 de niño que no miente
+en el mar de su inocencia
+y en la arena de la inconciencia
