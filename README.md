@@ -64,3 +64,4 @@ de la costa septentrional
 que serpentea el azar
 como una zona desierta
 del hielo continental
+que el viejo ozono observa
