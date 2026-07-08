@@ -66,3 +66,4 @@ como una zona desierta
 del hielo continental
 que el viejo ozono observa
 con su ojo colosal
+posado sobre el dorsal
