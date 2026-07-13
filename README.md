@@ -72,3 +72,4 @@ por la calle peligrosa
 del barrio codicioso
 de la nostalgia perdida
 del amor desolado
+de frio resistido
