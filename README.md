@@ -75,3 +75,4 @@ del amor desolado
 de frio resistido
 y celeste retenido
 esperando el resultado
+con oidos tapados
