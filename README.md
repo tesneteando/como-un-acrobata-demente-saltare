@@ -76,3 +76,4 @@ de frio resistido
 y celeste retenido
 esperando el resultado
 con oidos tapados
+escucho el estampido
