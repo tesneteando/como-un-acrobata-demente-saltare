@@ -82,7 +82,8 @@ de un llanto sufrido
 de la victoriosa derrota
 con nostalgia sentida
 de la burla organizada
-en odiseas camuflada
+en odiseas camufladas
 de ordas adoctrinadas
 que creen ser libres
 siendo marionetas
+de las ideologias
