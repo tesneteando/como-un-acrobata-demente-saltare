@@ -90,3 +90,4 @@ de las ideologias
 de la imaginación
 que se piensan
 revolucionarios y
+son esclavos
