@@ -91,3 +91,4 @@ de la imaginación
 que se piensan
 revolucionarios y
 son esclavos
+de la culpa
