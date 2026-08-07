@@ -94,5 +94,7 @@ son esclavos
 de la culpa
 de la caja abrazada
 que contiene el 
-futuro absorvido
+futuro absorbido
 por sus mismos
+idolos creidos
+
