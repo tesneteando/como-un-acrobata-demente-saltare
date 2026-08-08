@@ -97,4 +97,5 @@ que contiene el
 futuro absorbido
 por sus mismos
 idolos creidos
+disfrazados de dioses
 
