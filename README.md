@@ -98,4 +98,5 @@ futuro absorbido
 por sus mismos
 idolos creidos
 disfrazados de dioses
+esclavos de los hilos
 
