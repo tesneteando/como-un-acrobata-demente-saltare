@@ -100,4 +100,5 @@ idolos creidos
 disfrazados de dioses
 esclavos de los hilos
 de los malos sentidos
+que atraen latidos
 
