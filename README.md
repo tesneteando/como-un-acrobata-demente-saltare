@@ -102,7 +102,8 @@ disfrazados de dioses
 esclavos de los hilos
 de los malos sentidos
 que atraen latidos
-de corazones disfrazados
+de corazones camuflados
 de corderos vandindos
 comidos por la lavia
+del estúpido vendido
 
