@@ -106,4 +106,5 @@ de corazones camuflados
 de corderos vandindos
 comidos por la lavia
 del estúpido vendido
+quemado en el tejido
 
