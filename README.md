@@ -109,4 +109,4 @@ del estúpido vendido
 quemado en el tejido
 de la blanda hipocresia
 que simulaba grandeza
-
+mientras sentía pobreza
