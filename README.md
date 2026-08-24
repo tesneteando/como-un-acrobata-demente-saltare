@@ -111,4 +111,5 @@ de la blanda hipocresia
 que simulaba grandeza
 mientras sentía pobreza
 en las entrañas de
-su tibiesa
+su gran tibieza 
+inmolado en sueños
