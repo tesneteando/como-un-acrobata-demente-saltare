@@ -116,3 +116,4 @@ inmolado en sueños
 de revoluciones de dueños
 que imaginan imposibles
 espadas de damocles
+clavadas en su engaño
