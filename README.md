@@ -121,3 +121,4 @@ de clérigos oscuros
 con látigos sin uso
 de enebros verbales
 impacientes medievales
+con escudos de hielo
