@@ -122,3 +122,4 @@ con látigos sin uso
 de enebros verbales
 impacientes medievales
 con escudos de hielo
+rasgados como vitrinas
