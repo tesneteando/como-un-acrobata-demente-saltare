@@ -128,3 +128,4 @@ del valle de la orgia
 transgénera de mente
 hipnótica de corriente
 con vampiro resiliente 
+con dientes de manteca
