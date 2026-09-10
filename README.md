@@ -129,3 +129,4 @@ transgénera de mente
 hipnótica de corriente
 con vampiro resiliente 
 con dientes de manteca
+en bocados de plomo
