@@ -132,3 +132,4 @@ con dientes de manteca
 en bocados de plomo
 de saliva de fango
 con estómago de hierba
+de monolito de tiza
