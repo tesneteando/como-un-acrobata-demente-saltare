@@ -135,3 +135,4 @@ con estómago de hierba
 de monolito de tiza
 con sombrero de pizza
 en diván sin baliza 
+con paso obstruido
