@@ -139,3 +139,4 @@ con paso obstruido
 de pasados fungidos
 con malevos curtidos
 de burdas sentidas
+con ratios quebrados
