@@ -141,3 +141,4 @@ con malevos curtidos
 de burdas sentidas
 con ratios quebrados
 de chasquidos rasgados
+charangos sentados
