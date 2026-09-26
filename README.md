@@ -143,4 +143,5 @@ con ratios quebrados
 de chasquidos rasgados
 charangos sentados
 en armarios becados
-con rutinas marcadas
+con rutinas secadas
+de cartas marcadas
