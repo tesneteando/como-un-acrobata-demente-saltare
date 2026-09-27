@@ -145,3 +145,4 @@ charangos sentados
 en armarios becados
 con rutinas secadas
 de cartas marcadas
+por mentes sesgadas
