@@ -147,3 +147,4 @@ con rutinas secadas
 de cartas marcadas
 por mentes sesgadas
 de carnes quemadas
+en trincheras ahumadas
