@@ -148,3 +148,4 @@ de cartas marcadas
 por mentes sesgadas
 de carnes quemadas
 en trincheras ahumadas
+en soleras deseadas
