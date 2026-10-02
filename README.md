@@ -150,3 +150,4 @@ de carnes quemadas
 en trincheras ahumadas
 en soleras deseadas
 por ardientes mesadas
+de bambas paradas
