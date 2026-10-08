@@ -152,6 +152,7 @@ de nalgas gastadas
 en soleras deseadas
 por ardientes mesadas
 de bambas paradas
+con recetas usadas
 en esterlinas mareadas
 de libras quebradas
 de populares oleadas
