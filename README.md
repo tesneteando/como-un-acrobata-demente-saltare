@@ -167,3 +167,4 @@ por abruptas estiradas
 de petroleras encontradas
 en aeropuertos cerrados
 con panteras pintadas
+de medias rayadas
