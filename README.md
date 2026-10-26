@@ -169,3 +169,4 @@ en aeropuertos cerrados
 con panteras pintadas
 de medias rayadas
 con virulentas llamadas
+de medianeras saltadas
