@@ -170,3 +170,4 @@ con panteras pintadas
 de medias rayadas
 con virulentas llamadas
 de medianeras saltadas
+con ojotas gastadas
