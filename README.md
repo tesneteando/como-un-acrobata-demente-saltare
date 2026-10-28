@@ -171,3 +171,4 @@ de medias rayadas
 con virulentas llamadas
 de medianeras saltadas
 con ojotas gastadas
+de zombies montadas
