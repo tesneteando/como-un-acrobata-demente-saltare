@@ -172,3 +172,4 @@ con virulentas llamadas
 de medianeras saltadas
 con ojotas gastadas
 de zombies montadas
+en orejuelas prensadas 
