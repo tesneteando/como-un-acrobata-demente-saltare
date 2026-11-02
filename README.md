@@ -175,3 +175,4 @@ de zombies montadas
 en orejuelas prensadas 
 de huérfanas danzadas 
 en medias gastadas
+de zapatillas lanzadas
