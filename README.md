@@ -183,3 +183,4 @@ en alcaparras mojadas
 por lluvias silenciadas
 por truenos maniatados
 de ojivas aplanadas
+en laberintos roseados
