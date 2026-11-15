@@ -186,3 +186,4 @@ de ojivas aplanadas
 en laberintos roseados
 con películas estudiadas
 de letras marcadas
+por flechas limadas
