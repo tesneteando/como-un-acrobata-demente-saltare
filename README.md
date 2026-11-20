@@ -190,3 +190,4 @@ por flechas limadas
 con tintas punzantes
 de aguas danzantes
 con barriletes sobrantes
+de entrañas parlantes
